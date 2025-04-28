@@ -11,4 +11,5 @@
 [![IMG-0109.jpg](https://i.postimg.cc/qMdKC4sn/IMG-0109.jpg)](https://postimg.cc/bd3r7XFN)
 [![IMG-0110.jpg](https://i.postimg.cc/PxYxtvF7/IMG-0110.jpg)](https://postimg.cc/2bjmGyYd)
 [![IMG-0111.jpg](https://i.postimg.cc/Hspxgx0S/IMG-0111.jpg)](https://postimg.cc/WtHjmsHr)
+[![IMG-0112.png](https://i.postimg.cc/sx3Vs6WB/IMG-0112.png)](https://postimg.cc/k6hryyf9)
      ©️2025 Vu Minh Ngoc
