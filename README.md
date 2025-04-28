@@ -4,6 +4,7 @@
 [![IMG-0034.jpg](https://i.postimg.cc/B6cyhMXN/IMG-0034.jpg)](https://postimg.cc/8Jctcddr)
 [![IMG-0104.jpg](https://i.postimg.cc/TY2SGMKj/IMG-0104.jpg)](https://postimg.cc/ThSQqsqh)
 [![IMG-0035.jpg](https://i.postimg.cc/D0vNRLGh/IMG-0035.jpg)](https://postimg.cc/G8fzyBzg)
+[![IMG-0105.jpg](https://i.postimg.cc/pLhsX2Rj/IMG-0105.jpg)](https://postimg.cc/18SGv1gR)
 
 
      ©️2025 Vu Minh Ngoc
